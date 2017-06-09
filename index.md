@@ -63,6 +63,6 @@ Equal obligation of all to work. Establishment of industrial armies, especially 
 Combination of agriculture with manufacturing industries; gradual abolition of all the distinction between town and country by a more equable distribution of the populace over the country.  
 # 10. 
 Free education for all children in public schools. Abolition of children’s factory labor in its present form. Combination of education with industrial production, etc.  
-_____________________________________________________________________________________________
+__________________________________________________________________________________________________________________________________________________________________________________________
 
 This was organized by the Cyber Worker's Party. ☭ 

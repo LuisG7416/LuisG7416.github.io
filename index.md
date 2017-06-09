@@ -45,14 +45,23 @@ The bourgeoisie, wherever it has got the upper hand, has put an end to all feuda
 What else does the history of ideas prove, than that intellectual production changes its character in proportion as material production is changed? The ruling ideas of each age have ever been the ideas of its ruling class.  When people speak of ideas that revolutionize society, they do but express the fact that within the old society the elements of a new one have been created, and that the dissolution of the old ideas keeps even pace with the dissolution of the old conditions of existence.  When the ancient world was in its last throes, the ancient religions were overcome by Christianity. When Christian ideas succumbed in the eighteenth century to rationalist ideas, feudal society fought its death-battle with the then revolutionary bourgeoisie. The ideas of religious liberty and freedom of conscience, merely gave expression to the sway of free competition within the domain of knowledge..  We have seen above that the first step in the revolution by the working class is to raise the proletariat to the position of ruling class to win the battle of democracy.  The proletariat will use its political supremacy to wrest, by degree, all capital from the bourgeoisie, to centralize all instruments of production in the hands of the state, i. e., of the proletariat organized as the ruling class; and to increase the total productive forces as rapidly as possible.  These measures will, of course, be different in different countries.  Nevertheless, in most advanced countries, the following will be pretty generally applicable.  
 # 1. 
 Abolition of property in land and application of all rents of land to public purposes.  
-# 2.  A heavy progressive or graduated income tax.  
-# 3.  Abolition of all rights of inheritance.  
-# 4.  Confiscation of the property of all emigrants and rebels.  
-# 5.  Centralization of credit in the banks of the state, by means of a national bank with state capital and an exclusive monopoly.  
-# 6.  Centralization of the means of communication and transport in the hands of the state.  
-# 7.  Extension of factories and instruments of production owned by the state; the bringing into cultivation of waste lands, and the improvement of the soil generally in accordance with a common plan.  
-# 8.  Equal obligation of all to work. Establishment of industrial armies, especially for agriculture.  
-# 9.  Combination of agriculture with manufacturing industries; gradual abolition of all the distinction between town and country by a more equable distribution of the populace over the country.  
-# 10. Free education for all children in public schools. Abolition of children’s factory labor in its present form. Combination of education with industrial production, etc.  
+# 2.  
+A heavy progressive or graduated income tax.  
+# 3.  
+Abolition of all rights of inheritance.  
+# 4.  
+Confiscation of the property of all emigrants and rebels.  
+# 5.  
+Centralization of credit in the banks of the state, by means of a national bank with state capital and an exclusive monopoly.  
+# 6.  
+Centralization of the means of communication and transport in the hands of the state.  
+# 7.  
+Extension of factories and instruments of production owned by the state; the bringing into cultivation of waste lands, and the improvement of the soil generally in accordance with a common plan.  
+# 8.  
+Equal obligation of all to work. Establishment of industrial armies, especially for agriculture.  
+# 9.  
+Combination of agriculture with manufacturing industries; gradual abolition of all the distinction between town and country by a more equable distribution of the populace over the country.  
+# 10. 
+Free education for all children in public schools. Abolition of children’s factory labor in its present form. Combination of education with industrial production, etc.  
 
 This was organized by the Cyber Worker's Party. ☭ 

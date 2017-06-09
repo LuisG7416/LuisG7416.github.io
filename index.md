@@ -11,7 +11,7 @@ Markdown is a lightweight and easy-to-use syntax for styling your writing. It in
 ```markdown
 Syntax highlighted code block
 
-# Header 69
+# Header 1
 ## Header 2
 ### Header 3
 
@@ -38,4 +38,4 @@ Having trouble with Pages? Check out our [documentation](https://help.github.com
 
 
 
-This was organized by the Cyber Worker's Party ))))
+This was organized by the Cyber Worker's Party. ☭ 
